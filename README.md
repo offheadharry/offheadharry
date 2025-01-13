@@ -1,6 +1,6 @@
 ### Hi there, I'm Harry Burrell (aka Offheadharry)
 
-I am an avid investor in blockchain technology and have since started freelance work with Combased. Previously a community moderator for FrizzyNFT. My experience is largely with MultiversX ($EGLD). I have learnt a lot about running communities, marketing on social media and blockchain networks in this time. 
+Founder of Big Man On-Chain Ltd; I work with multiple organisations on MultiversX including Project X DAO, AI Nexus, xAlliance, xCities, Multiconomy and Pittz. Previously a community moderator for FrizzyNFT and member of the community team at Combased. 
 
 ## 🌱 I’m currently learning ...
 
