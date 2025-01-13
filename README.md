@@ -9,5 +9,3 @@ I took up the opportunity to apply to HyperionDev's Software Engineering Bootcam
 ## For more information ...
 
 Visit my LinkedIn page @ https://www.linkedin.com/in/harryjburrell/
-
-Feel free to read some of my articles about NFTs, my coding experience etc. @ https://www.combased.io/blog
